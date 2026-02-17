@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @michellepaguay
 - 👀 I’m interested in technology
-- 📚 I’m currently majoring in information systems
+- 📚 I’m currently majoring in Technological Systems Management 
 - 📫 How to reach me michellepaguay12@gmail.com
 - 🧩 Pronouns: she/her
 - 🩰 Fun fact: i sing  
